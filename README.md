@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nabila Imana Harahap
-- 👀 I’m currently a Geophysics student at Gajah Mada University
+- 👀 I’m currently a Geophysics student at Gadjah Mada University
 - 💞️ Let's keep in touch to make more connection
 - 📫 Contact me via Instagram @nabilaaharahap
 
