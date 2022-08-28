@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @nabilaaharahap
+- 👋 Hi, I’m Nabila Imana Harahap
 - 👀 I’m currently a Geophysics student at Gajah Mada University
-- 💞️ I’m passionate at painting
+- 💞️ Let's keep in touch to make more connection
 - 📫 Contact me via Instagram @nabilaaharahap
 
 <!---
