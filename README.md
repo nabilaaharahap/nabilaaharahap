@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/111741967/188417560-4da8bc3a-41dd-4b53-8e70-0eee2e06c0b5.png)
+![image](https://user-images.githubusercontent.com/111741967/188417652-cad3c483-38bf-42b7-8d2c-19d82169ae85.png)
 
 - 👋 Hi, I’m Nabila Imana Harahap
 - 👀 I’m currently a Geophysics student at Gadjah Mada University
