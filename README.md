@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/111741967/188417652-cad3c483-38bf-42b7-8d2c-19d82169ae85.png)
+![nezuko-kamado-running](https://user-images.githubusercontent.com/111741967/188685700-7e403732-d30e-4316-b170-e848895798c1.gif)
 
 - 👋 Hi, I’m Nabila Imana Harahap
 - 👀 I’m currently a Geophysics student at Gadjah Mada University
